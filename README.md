@@ -18,11 +18,11 @@ Whether it’s a romantic escape or a family holiday, houseboat cruises cater to
 Best Time to Enjoy Houseboat Cruises
 
 The beauty of Alleppey’s backwaters can be enjoyed throughout the year, but the months from October to March are especially pleasant. During this time, the weather is ideal for cruising and sightseeing, making Alleppey houseboat packages even more enjoyable.
-https://alleppyhouseboat.com/
+
 
 Why Choose Curated Houseboat Experiences
 
 A well-planned houseboat journey ensures safety, comfort, and quality service. Carefully curated packages focus on trusted operators, clean boats, and personalized itineraries. Travel platforms like Cocomyst highlight such thoughtfully designed experiences, helping travelers enjoy the best of Alleppey without worries.
 
 Final Thoughts
-Alleppey houseboat packages offer a rare opportunity to slow down and reconnect with nature. From scenic backwaters and comfortable stays to authentic local flavors, a houseboat cruise in Alleppey promises memories that last a lifetime.
+Alleppey houseboat packages https://alleppyhouseboat.com/ offer a rare opportunity to slow down and reconnect with nature. From scenic backwaters and comfortable stays to authentic local flavors, a houseboat cruise in Alleppey promises memories that last a lifetime.
